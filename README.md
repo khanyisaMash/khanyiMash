@@ -1,3 +1,3 @@
-# Hi I'm Khanyisa!
-# Actuarial, Data Analyst
+# Hi I'm Khanyisa! 
+Actuarial, Data Analyst
 
